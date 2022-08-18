@@ -1,2 +1,3 @@
-1.Prisca Emoefe
-2. Princess Emoefe
+Prisca Emoefe
+Princessia Emoefe
+Princess Emoefe
